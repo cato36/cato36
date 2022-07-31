@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @cato36
+- 👀 I’m interested in playing video games.
+- 🌱 I’m currently learning python/java codding
+- 💞️ I’m looking to collaborate on twitch.
+- 📫 How to reach me with my e-mail caglayanbektas73@gmail.com  or my instagram :  @caaglayantr
+- 👋 I am 16 years old teenager who intrested in playing video games / streaming / codding  actually im intrested on everything.
